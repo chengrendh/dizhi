@@ -2,7 +2,7 @@
 
 最新地址1：<a href="http://www.chengrendh.info">chengrendh.info</a> 最新地址2：<a href="http://www.chengrendh.org">chengrendh.org</a>
 
-当你发现藏姬阁导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
+当你发现成人色导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
 每一个网站都有一个情怀，我们的情怀就是：纯净、实用、坚持用户体验至上！好站不可多得，只此一家
 
