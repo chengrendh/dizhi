@@ -1,6 +1,6 @@
 
 
-最新地址1：<a href="http://www.chengrendh.info">chengrendh.info</a> 最新地址2：<a href="http://www.chengrendh.org">chengrendh.org</a>
+最新地址：<a href="http://www.chengrendh.info">chengrendh.info</a> 备用地址：<a href="http://www.chengrendh.org">chengrendh.org</a>
 
 当你发现成人色导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
